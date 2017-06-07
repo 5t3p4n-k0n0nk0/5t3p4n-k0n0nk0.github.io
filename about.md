@@ -2,7 +2,7 @@
 
 ### Information
 
-I lost my timberland boots
+understandable have a nice day
 
 ### Cont act me
 
