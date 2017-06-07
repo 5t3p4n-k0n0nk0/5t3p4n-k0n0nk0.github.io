@@ -4,12 +4,12 @@ title: About
 permalink: /about/
 ---
 
-i'm boring
 
-### More Information
 
-boring stuff really. 
+### Information
+
+
 
 ### Contact me
 
-please don't
+Please don't.
