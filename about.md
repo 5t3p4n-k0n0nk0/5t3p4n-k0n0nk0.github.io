@@ -4,6 +4,6 @@
 
 understandable have a nice day
 
-### Cont act me
+### Contact me
 
 Please don't.
